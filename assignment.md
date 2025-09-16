@@ -9,4 +9,4 @@ You are not here to receive a gift, nor have you been called here by the individ
 
  ![hqdefault](https://github.com/user-attachments/assets/320d8c68-8f90-4f82-ad5c-6cd26d04c86e)
 
-https://www.reddit.com/r/copypasta/comments/g9ulsh/fnaf_6_ending_speech/
+Source https://www.reddit.com/r/copypasta/comments/g9ulsh/fnaf_6_ending_speech/
